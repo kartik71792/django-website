@@ -1,3 +1,3 @@
-QQ群: 894859699
-![preview](preview.png)/image
+QQ群:  894859699
+![preview](preview.png)/image/site
 
